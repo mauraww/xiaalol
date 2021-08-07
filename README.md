@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning javascript and python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : @asianbbylol on instagram
+- 📫 How to reach me : @asiantrashcanxo on Instagram and mora#1999 on Discord
 
 <!---
 xiaalol/xiaalol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
